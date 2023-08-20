@@ -1,5 +1,3 @@
-### Hi there 👋
-
 # Halo semua! 
 Perkenalkan nama saya **Ghinan Muhamad Zulfa**.<br>
 Saya seorang **Mahasiswa** di [UniversitasGadjahMada](https://ugm.ac.id/).<br>
